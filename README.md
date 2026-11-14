@@ -7,5 +7,5 @@
 
 📫 Conecta conmigo en LinkedIn: https://www.linkedin.com/in/d4nysj
 
-📫 http://d4nysj.github.io
+📫 http://danielsanjuan.com
 
